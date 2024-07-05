@@ -2,7 +2,7 @@
 
 # Trishna Patil
 
-[trishna.patil0405@gmail.com](mailto:trishna.patil0405@gmail.com) | +1 (812) 369-9544 | [LinkedIn](https://linkedin.com/in/trishna-patil)
+[trishna.patil0405@gmail.com](mailto:trishna.patil0405@gmail.com) | [LinkedIn](https://linkedin.com/in/trishna-patil)
 
 
 ## Summary
